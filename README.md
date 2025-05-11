@@ -1,5 +1,1 @@
-Refer to me as Dorito if you're my friend, or whoever I'm playing as.
-At the current moment, I'm interested in Sonic, Omori, Dandy's world.
-I use any pronouns.
-I can either be really cool, really fucking dense, or angry and depressed (I don't know why I'm this way)
-Don't recommend becoming friends with my awkward ass.
+［Wassup‚ Im DORITOZ - Go ahead and use whatever pronouns you want for me․ I'm not the most social person and often times prefer watching rather than talking - I enjoy drawing and listening to music; if you got any further questions‚ go ahead and ask me․］
