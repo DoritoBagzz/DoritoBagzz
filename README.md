@@ -4,4 +4,3 @@ https://detoz.straw.page
 I use any pronouns.
 I can either be really cool, really fucking dense, or angry and depressed (I don't know why I'm this way)
 Don't recommend becoming friends with my awkward ass.
-someone put me down, please
