@@ -54,3 +54,28 @@ I enjoy drawing and listening to music; if you got any further questions‚ go 
                                                                                                                                  
                                                                                                                                  
   (I assure you I can be cool when I'm not dying of social anxiety or being pessimistic and moody)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+  ![image](https://github.com/user-attachments/assets/2146cef6-3e1e-422b-8646-d0960c4930c9)
+  
+
