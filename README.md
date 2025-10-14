@@ -19,6 +19,34 @@
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 <img width="387" height="457" alt="image" src="https://github.com/user-attachments/assets/3280150f-91b3-4db4-8c5e-6382f73dcc58" />
 
  
@@ -138,16 +166,4 @@
 
 
 
-
-
-ART JUMPSCARE.
-
-
-
-
-
-
-
-  ![image](https://github.com/user-attachments/assets/2146cef6-3e1e-422b-8646-d0960c4930c9)
-  
 
