@@ -76,8 +76,6 @@
 
 
 
-<img width="495" height="300" alt="image" src="https://github.com/user-attachments/assets/7451ebad-3c28-4a4e-925e-91f6040d9b7a" />
-
 
 
 
